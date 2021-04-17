@@ -1,1 +1,1 @@
-https://rushkinrenny.github.io/MuseumOfCandy/
+https://rushkinrenny.github.io/MuseumOfCandy
